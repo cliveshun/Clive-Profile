@@ -1,0 +1,1 @@
+Clive Profile is a personal portfolio and resume website for Clive Shunmugam, showcasing his experience in corporate strategy, downstream petroleum finance, M&A, price risk, and process optimization. The site presents his professional background, key projects, credentials, and contact details in a polished, minimalist format.
